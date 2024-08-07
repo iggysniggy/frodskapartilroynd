@@ -1,0 +1,1 @@
+Her stendur tó ikki nógv.
